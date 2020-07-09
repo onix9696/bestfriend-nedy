@@ -1,0 +1,2 @@
+# bestfriend-nedy
+Crypto mining
